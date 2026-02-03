@@ -1,4 +1,4 @@
-## Olá, eu sou o José Daniel, um DevOps Enginner em formação!
+## Olá, eu sou o José Daniel, um profissional de TI em formação!
 
 ##
 
