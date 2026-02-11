@@ -1,4 +1,4 @@
-## Olá, eu sou o José Daniel, um profissional de TI em formação!
+## Olá, eu sou José Daniel, um profissional de TI em formação!
 
 ##
 
